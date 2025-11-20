@@ -12,4 +12,4 @@ c*h appreciated ^_^ㅤㅤㅤㅤwhisp2int!ㅤㅤㅤㅤdon't be afraid to approach
 
 [atabook](https://elliotspizza.atabook.org/) [main strawpage](https://chanceforsaken.straw.page/) [prns.cc](https://pronouns.cc/@chanceforsaken) strawpage outdated but idgaf
 
-[@V1neStaff1ngReal](https://github.com/V1neStaff1ngReal) [@pretty-IittIe-things](https://github.com/pretty-IittIe-things) 𝓱𝓲 𝓼𝓽𝓲𝓷𝓴𝓲𝓮𝓼... [@Pixelbrickz](https://github.com/Pixelbrickz) HIIII !!!! ^_^ [@EternityFlowers](https://github.com/EternityFlowers) HI DAD!!!!!!!!!!!!!!
+[@V1neStaff1ngReal](https://github.com/V1neStaff1ngReal) [@pretty-IittIe-things](https://github.com/pretty-IittIe-things) 𝓱𝓲 𝓼𝓽𝓲𝓷𝓴𝓲𝓮𝓼... [@Pixelbrickz](https://github.com/Pixelbrickz) HIIII !!!! ^_^ [@EternityFlowers](https://github.com/SweetFlesh) HI DAD!!!!!!!!!!!!!!
