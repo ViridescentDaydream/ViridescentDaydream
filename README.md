@@ -6,10 +6,10 @@
 $\color{#38eb97}{Always~ an~ angel,~ never~ a~ god.~}$
 
 
-<img width="70" src="https://komarev.com/ghpvc/?username=CHANCEFORSAKEN&color=005441&label=ichor">
+<img width="70" src="https://komarev.com/ghpvc/?username=CHANCEFORSAKEN&color=380a03&label=deals">
 
-c*h appreciated ^_^ㅤㅤㅤㅤwhisp2int!ㅤㅤㅤㅤdon't be afraid to approach me, i love making new friends ^.^~
+whisp2int!ㅤㅤdon't be afraid to approach me, i love making new friends ( ◜‿◝ )♡
 
 [atabook](https://elliotspizza.atabook.org/) [main strawpage](https://chanceforsaken.straw.page/) [prns.cc](https://pronouns.cc/@chanceforsaken) strawpage outdated but idgaf
 
-[@V1neStaff1ngReal](https://github.com/V1neStaff1ngReal) [@pretty-IittIe-things](https://github.com/pretty-IittIe-things) 𝓱𝓲 𝓼𝓽𝓲𝓷𝓴𝓲𝓮𝓼... [@Pixelbrickz](https://github.com/Pixelbrickz) HIIII !!!! ^_^ [@VoxBroadcast](https://github.com/VoxBroadcast) HI DAD!!!!!!!!!!!!!!
+remake laterㅤㅤnew links will be here soon!
