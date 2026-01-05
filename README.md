@@ -10,6 +10,6 @@ $\color{#38eb97}{Always~ an~ angel,~ never~ a~ god.~}$
 
 whisp2int!ㅤㅤdon't be afraid to approach me, i love making new friends ( ◜‿◝ )♡
 
-[atabook](https://elliotspizza.atabook.org/) [main strawpage](https://chanceforsaken.straw.page/) [prns.cc](https://pronouns.cc/@harlequinstent) work in progress!
+[atabook](https://elliotspizza.atabook.org/) [main strawpage](https://harlequinstent.straw.page/) [prns.cc](https://pronouns.cc/@chanceforsaken) work in progress!
 
 remake laterㅤㅤnew links will be here soon!
