@@ -6,16 +6,16 @@ $\textcolor{#695164}{\text{✦}}$
 
 ![Image Alt](https://github.com/ENDLESS-DOORS/ENDLESS-DOORS/blob/ff94b603a66568268af6b539fcbef7710f80be74/output-onlinegiftools.gif)
 
-$\textcolor{#4E1850FF}{\text{I thought the lilies died by winter, then they bloomed again in spring.}}$
+$\textcolor{#571b4c}{\text{I thought the lilies died by winter, then they bloomed again in spring.}}$
 
 $\textcolor{#695164}{\text{✦}}$
 
 <img width="70" src="https://komarev.com/ghpvc/?username=CHANCEFORSAKEN&color=571b4c&label=promises">
 
-$\textcolor{#4E1850FF}{\text{Whisper to interact preferably! I'm always offtab, but I enjoy people cuddling me ୭}}$ $\textcolor{#415021FF}{\text{@Pixelbricks < My Parrot!!}}$ $\textcolor{#695164}{\text{@MisasLove + @MlIRAGE < oomfs!!}}$
+$\textcolor{#571b4c}{\text{Whisper to interact preferably! I'm always offtab, but I enjoy people cuddling me ୭}}$ $\textcolor{#324918}{\text{@Pixelbricks < My Parrot!!}}$ $\textcolor{#571b4c}{\text{@MisasLove + @MlIRAGE < oomfs!!}}$
 $\textcolor{#695164}{\text{@SilencedHeart < My online father! Love youu dadd!!}}$
 
 [atabook](https://elliotspizza.atabook.org/) [main strawpage](https://harlequinstent.straw.page/) [prns.cc](https://pronouns.cc/@chanceforsaken)
 
-$\textcolor{#4E1850FF}{\text{Castle in Hollywood --- Laufey}}$
+$\textcolor{#571b4c}{\text{Castle in Hollywood --- Laufey}}$
 $\textcolor{#695164}{\text{Forevermore, Wifies}}$
