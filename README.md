@@ -1,21 +1,21 @@
 <div align="center">
 
-$\textcolor{#704d16}{\text{" Another door, another question...? "}}$
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Playfair+Display&pause=1000&color=3C2A50&width=435&lines=Please%2C+Parrot...;Give+that+to+me+before+you+get+hurt.;.....;It's+all+yours.)](https://git.io/typing-svg)
 
-$\textcolor{#b39836}{\text{✦}}$
+$\textcolor{#695164}{\text{✦}}$
 
-![Image Alt](https://github.com/ENDLESS-DOORS/ENDLESS-DOORS/blob/3cfbf59bc62812cff949d5dffbb79438b17b616e/Untitled18_20260124130803.png)
+![Image Alt](https://github.com/ENDLESS-DOORS/ENDLESS-DOORS/blob/ff94b603a66568268af6b539fcbef7710f80be74/output-onlinegiftools.gif)
 
-$\textcolor{#704d16}{\text{Going 'round in circles, wond'ring when I'll reach the end.}}$
+$\textcolor{#4E1850FF}{\text{I thought the lilies died by winter, then they bloomed again in spring.}}$
 
-$\textcolor{#b39836}{\text{✦}}$
+$\textcolor{#695164}{\text{✦}}$
 
-<img width="70" src="https://komarev.com/ghpvc/?username=CHANCEFORSAKEN&color=704d16&label=doors">
+<img width="70" src="https://komarev.com/ghpvc/?username=CHANCEFORSAKEN&color=571b4c&label=promises">
 
-$\textcolor{#704d16}{\text{Whisper to interact preferably! I'm always offtab, but I enjoy people cuddling me ୭ @Pixelbricks < My Expendable!! @MisasLove + heidi < oomfs!!}}$
-$\textcolor{#9c7e2b}{\text{@SilencedHeart < My online father! Love youu dadd!!}}$
+$\textcolor{#4E1850FF}{\text{Whisper to interact preferably! I'm always offtab, but I enjoy people cuddling me ୭}}$ $\textcolor{#415021FF}{\text{@Pixelbricks < My Parrot!!}}$ $\textcolor{#695164}{\text{@MisasLove + @MlIRAGE < oomfs!!}}$
+$\textcolor{#695164}{\text{@SilencedHeart < My online father! Love youu dadd!!}}$
 
 [atabook](https://elliotspizza.atabook.org/) [main strawpage](https://harlequinstent.straw.page/) [prns.cc](https://pronouns.cc/@chanceforsaken)
 
-$\textcolor{#b39836}{\text{I'm losing, the sense of where I am.}}$
-$\textcolor{#704d16}{\text{I LOVE ENDLESS TORMENT TRIO}}$
+$\textcolor{#4E1850FF}{\text{Castle in Hollywood --- Laufey}}$
+$\textcolor{#695164}{\text{Forevermore, Wifies}}$
