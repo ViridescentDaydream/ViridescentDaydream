@@ -13,7 +13,7 @@ $\textcolor{#695164}{\text{✦}}$
 <img width="70" src="https://komarev.com/ghpvc/?username=CHANCEFORSAKEN&color=571b4c&label=promises">
 
 $\textcolor{#571b4c}{\text{Whisper to interact preferably! I'm always offtab, but I enjoy people cuddling me ୭}}$ $\textcolor{#324918}{\text{@Pixelbricks < My Parrot!!}}$ $\textcolor{#571b4c}{\text{@MisasLove + @MlIRAGE < oomfs!!}}$
-$\textcolor{#695164}{\text{@SilencedHeart < My online father! Love youu dadd!!}}$
+$\textcolor{#695164}{\text{@B-Zuka < My online father! Love youu dadd!!}}$
 
 [atabook](https://elliotspizza.atabook.org/) [main strawpage](https://harlequinstent.straw.page/) [prns.cc](https://pronouns.cc/@chanceforsaken)
 
