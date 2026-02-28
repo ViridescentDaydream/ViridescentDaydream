@@ -4,7 +4,7 @@
 
 $\textcolor{#695164}{\text{✦}}$
 
-![Image Alt](https://github.com/ENDLESS-DOORS/ENDLESS-DOORS/blob/ff94b603a66568268af6b539fcbef7710f80be74/output-onlinegiftools.gif)
+![Image Alt](https://github.com/DIRECTOR-WIFIES/DIRECTOR-WIFIES/blob/c494e5d8d1e163c3fb1d70bb985b6e9f58843817/Untitled18_20260124130803.png)
 
 $\textcolor{#571b4c}{\text{I thought the lilies died by winter, then they bloomed again in spring.}}$
 
